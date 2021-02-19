@@ -1,7 +1,8 @@
 # PUBG-PC-LITE-v.1233
 PUBG PC LITE Hack ver.1233
-Password : Check Password.txt for it!
 STATUS : UNDETECTED
+
+Discord Server : https://discord.gg/uPmF7D5mcN
 
 Watch before using cheat
 https://www.youtube.com/watch?v=vyPKH7iFTz4&feature=youtu.be
